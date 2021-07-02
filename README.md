@@ -1,7 +1,7 @@
 
 # Hovhannes Kantuni
 
-With 2+ years of programming experience I have acquired the following skills:
+With 3+ years of programming experience I have acquired the following skills:
 
 
 
